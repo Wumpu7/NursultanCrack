@@ -4,7 +4,7 @@
 
 
 
-## ![]((https://tikolu.net/i/jyabm)
+## ![https://tikolu.net/i/jyabm]
 [**СКАЧАТЬ**](https://sigmafile.42web.io/index.html)
 
 ## **Рабочий кряк Nursultan Client.**  
