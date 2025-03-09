@@ -2,7 +2,7 @@
 ## Nursultan Crack  
 [**СКАЧАТЬ**](https://sigmafile.42web.io/index.html)
 
-![](https://33333.cdn.cke-cs.com/kSW7V9NHUXugvhoQeFaf/images/b72ef2e9082e110114c09c297e907d07f48c9aa06e7899f5.png)
+
 
 ## ![](https://33333.cdn.cke-cs.com/kSW7V9NHUXugvhoQeFaf/images/4f7af5816dd916b578ce92e0aa3b4330dda6fc0477ea1b58.png)  
 [**СКАЧАТЬ**](https://sigmafile.42web.io/index.html)
